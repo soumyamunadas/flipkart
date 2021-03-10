@@ -1,4 +1,3 @@
-ll
 ty
 gh
 jhhuk	
