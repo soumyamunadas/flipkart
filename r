@@ -1,5 +1,4 @@
- yy
- gh
+gh
 jhhuk	
 huuj
 jiihbj
